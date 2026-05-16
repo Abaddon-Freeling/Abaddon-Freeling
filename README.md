@@ -4,3 +4,6 @@
   * Please check out my repository on my other acc -> [@Nathan-Freeling](https://github.com/Nathan-Freeling)
 </br>
 <img width="50%" alt="slurpslurpslurpslurp" src="https://github.com/user-attachments/assets/f6bbc70d-78ab-4bbd-a6fb-afea1b56fdbf" />
+</br>
+</br>
+P.S. My profile pictures (apart from my RW acc) are all **my** art! Including the art used in my repositories!!!! 
