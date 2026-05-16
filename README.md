@@ -6,4 +6,7 @@
 <img width="50%" alt="slurpslurpslurpslurp" src="https://github.com/user-attachments/assets/f6bbc70d-78ab-4bbd-a6fb-afea1b56fdbf" />
 </br>
 </br>
-P.S. My profile pictures (apart from my RW acc) are all **my** art! Including the art used in my repositories!!!! 
+P.S. My profile pictures are all 𝐦𝐲 art! Including the art used in my repositories!!!!
+</br>
+
+ * Apart from my RW account, the art for the profile picture is from The Watcher's campaign/ official art.
