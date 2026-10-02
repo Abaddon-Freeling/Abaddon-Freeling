@@ -3,7 +3,9 @@
 
   * Please check out my repository on my other acc -> [@Nathan-Freeling](https://github.com/Nathan-Freeling)
 </br>
-<img width="50%" alt="image" src="https://github.com/user-attachments/assets/9dcbe9d6-fe44-40b3-ab6a-4de7dea14312"/>
+<img width="55%" alt="image" src="https://github.com/user-attachments/assets/5019d9c8-1388-43c8-b1c6-25abd334ad18" />
+
+
  
 </br>
 </br>
