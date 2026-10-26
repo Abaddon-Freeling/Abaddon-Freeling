@@ -1,9 +1,12 @@
 ### <p align="left" wi> WIP!! 
 </br>
 
-  * Please check out my repository on my other acc -> [@Nathan-Freeling](https://github.com/Nathan-Freeling)
-</br>
-<img width="55%" alt="image" src="https://github.com/user-attachments/assets/5019d9c8-1388-43c8-b1c6-25abd334ad18" />
+<p align="left"><img width="50%" alt="Abby and Kathy cutout" src="https://github.com/user-attachments/assets/18a5f077-a828-4f8c-b7f1-f6ec4c00c3cc" /> 
+
+<p align="right">  
+ 
+ <details>
+  <summary>(TITLE)</summary>
 
 
  
