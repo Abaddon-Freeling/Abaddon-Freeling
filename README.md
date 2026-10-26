@@ -1,18 +1,15 @@
-### <p align="left" wi> WIP!! 
-</br>
-
-<p align="left"><img width="50%" alt="Abby and Kathy cutout" src="https://github.com/user-attachments/assets/18a5f077-a828-4f8c-b7f1-f6ec4c00c3cc" /> 
-
-<p align="right">  
- 
- <details>
-  <summary>(TITLE)</summary>
+<img src="https://github.com/user-attachments/assets/68b4f709-56f9-4b20-a266-c08dc1057736" alt="Abby and Kathy cutout" width="50%" align="left" style="margin-right: 15px;">
 
 
- 
-</br>
-</br>
-P.S. My profile pictures are all 𝐦𝐲 art! Including the art used in my repositories!!!!
-</br>
-Learning to love canon demon design son.
+<details>
+  <summary>ABOUT ME</summary>
+</details>
+<details>
+  <summary>DNI</summary>
+ </details>
+<details>
+  <summary>PONYTOWN</summary>
+ </details>
+<br clear="left"/>
+
  
