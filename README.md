@@ -3,17 +3,15 @@
 
 
 
-<img width="2.5%" alt="Abaddon sigil pixel" src="https://github.com/user-attachments/assets/17dd1c4f-258c-4934-9fd2-6b5b12253c16" /> ABOUT ME
+<img width="2.5%" alt="Abaddon sigil pixel" src="https://github.com/user-attachments/assets/17dd1c4f-258c-4934-9fd2-6b5b12253c16" />  <img width="17%" alt="ABOUT ME header" src="https://github.com/user-attachments/assets/cc5b8700-6044-4767-a809-f4b9fe5e9a76" />
 
 
 
 
-<img width="2.5%" alt="Abaddon sigil pixel" src="https://github.com/user-attachments/assets/17dd1c4f-258c-4934-9fd2-6b5b12253c16" /> DNI
-
+<img width="2.5%" alt="Abaddon sigil pixel" src="https://github.com/user-attachments/assets/17dd1c4f-258c-4934-9fd2-6b5b12253c16" /> <img width="10%" alt="DNI Header" src="https://github.com/user-attachments/assets/11cabf36-9497-43d0-b2f0-fc398855157d" />
 
  
-<img width="2.5%" alt="Abaddon sigil pixel" src="https://github.com/user-attachments/assets/17dd1c4f-258c-4934-9fd2-6b5b12253c16" /> PONYTOWN
-
+<img width="2.5%" alt="Abaddon sigil pixel" src="https://github.com/user-attachments/assets/17dd1c4f-258c-4934-9fd2-6b5b12253c16" /> <img width="20%" alt="PONYTOWN icon" src="https://github.com/user-attachments/assets/e7931dfb-729a-4c2b-8698-f56ed9482a03" />
 
 </details>
 <br>
