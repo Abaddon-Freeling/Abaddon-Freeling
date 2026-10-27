@@ -63,9 +63,9 @@
   
   </details>
 
+<br>
 
-
-This is a biggg fat wip, please go check out my  [@Nathan-Freeling](https://github.com/Nathan-Freeling) account if you need information while I update this. I will also be making a textreader friendly version for this, which WILL be linked below once I have all of the info done :)
+Textreader version will be available soon!!!
 
 
 
