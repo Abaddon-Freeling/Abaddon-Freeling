@@ -66,9 +66,7 @@
 <br>
 
 
-[<img width="13%" alt="Strawpage image" src="https://github.com/user-attachments/assets/4fb86318-a10e-46af-af27-becfda6d4e0b" />](https://swarminglocust.straw.page) <img width="2.5%" alt="Abaddon sigil pixel" src="https://github.com/user-attachments/assets/17dd1c4f-258c-4934-9fd2-6b5b12253c16" /> 
-
-[<img width="13%" alt="Atabook" src="https://github.com/user-attachments/assets/ea5bfefe-d6c0-4d15-b6be-a94f61981084" />](https://verify110.atabook.org)
+[<img width="13%" alt="Strawpage image" src="https://github.com/user-attachments/assets/4fb86318-a10e-46af-af27-becfda6d4e0b" />](https://swarminglocust.straw.page) <img width="2.5%" alt="Abaddon sigil pixel" src="https://github.com/user-attachments/assets/17dd1c4f-258c-4934-9fd2-6b5b12253c16" /> [<img width="11%" alt="Atabook" src="https://github.com/user-attachments/assets/ea5bfefe-d6c0-4d15-b6be-a94f61981084" />](https://verify110.atabook.org)
 
 
 
