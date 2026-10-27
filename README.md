@@ -34,7 +34,7 @@
 ⸸ RADQUEERS. I'm not elaborating further, if you self identify as a RADQUEER, MAP, ZOO, NECRO, etc... Leave me alone. <br><br>
 ⸸ Proship/Darkship. I'm educated on what the terms mean, you don't need to come up to me and explain why you're the exception to the label. I'm not going out of my way to harass you or interact with the content you produce, I expect the same level of courtesy for me. <br><br>
 ⸸ Overly dark, edgy, or mean humor. I only allow this sort of humor with my closer friends, light teasing is alright. But if I see you justifying your behavior with the excuse of "I'm just joking!" or "You fell for the ragebait.", I'm immediately put off from interacting with you on a higher level. <br><br>
-⸸ The use of generative AI. This includes usage of AI chatbots or character AI.
+⸸ The use of generative AI. This includes usage of AI chatbots or character AI.<br><br>
 ⸸ Mentions of Suicide or Self-Harm without the appropriate warnings. There doesn't ever need to be warnings on 𝐡𝐞𝐚𝐥𝐞𝐝 scars in drawings or photos, but otherwise put a warning on the content. <br> <br>
 ⸸ If you see children as stupid or inferior. You were a child once, and they are a person as well. Just treat children with respect, you don't need to be chums with them or buddy-buddy. <br> <br>
 ⸸ Harry Potter fans. It's been well known that JK Rowling is a BIGOT. I don't care if you pirate the media, I don't care if you only read fanfiction, I don't care what your excuse is, you're just as much of a bigot to me. If you're a so-called trans advocate then you should have enough understanding that you constantly pushing her work onto social media is still publicity, and still funds her blatant transphobia+racism. <br><br>
