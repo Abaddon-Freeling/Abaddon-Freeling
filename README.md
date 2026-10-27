@@ -65,6 +65,10 @@
 
 <br>
 
+
+<img width="13%" alt="Strawpage image" src="https://github.com/user-attachments/assets/4fb86318-a10e-46af-af27-becfda6d4e0b" />
+
+
 Textreader version will be available soon!!!
 
 
