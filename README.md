@@ -66,8 +66,7 @@
 <br>
 
 
-<img width="13%" alt="Strawpage image" src="https://github.com/user-attachments/assets/4fb86318-a10e-46af-af27-becfda6d4e0b" />
-
+[<img width="13%" alt="Strawpage image" src="https://github.com/user-attachments/assets/4fb86318-a10e-46af-af27-becfda6d4e0b" />](https://swarminglocust.straw.page) <img width="2.5%" alt="Abaddon sigil pixel" src="https://github.com/user-attachments/assets/17dd1c4f-258c-4934-9fd2-6b5b12253c16" /> 
 
 Textreader version will be available soon!!!
 
