@@ -4,6 +4,9 @@
 
 
 <img width="2.5%" alt="Abaddon sigil pixel" src="https://github.com/user-attachments/assets/17dd1c4f-258c-4934-9fd2-6b5b12253c16" />  <img width="17%" alt="ABOUT ME header" src="https://github.com/user-attachments/assets/cc5b8700-6044-4767-a809-f4b9fe5e9a76" />
+<details>
+  <summary><img width="7%" alt="Click Here 1" src="https://github.com/user-attachments/assets/3a2f6c88-a906-4be7-9383-91bc347214cf" /></summary>
+  </details>
 
 
 
@@ -19,6 +22,8 @@
 
 
 This is a biggg fat wip, please go check out my  [@Nathan-Freeling](https://github.com/Nathan-Freeling) account if you need information while I update this.
+
+
 
 
 
