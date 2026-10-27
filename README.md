@@ -57,6 +57,7 @@
 ⸸ W2I always. Even if I'm online and moving around, I may not be paying attention to public chat, you're more likely to get a response if you just shoot me a whisper. <br><br>
 ⸸ C+H is fine, just avoid kissing me for the most part, but again, doesn't super impact me that much.<br><br>
 ⸸ Found at Bakery majority of the time, either offtab writing/drawing or observing people. <br><br>
+⸸ If you see me sleeping in ponytown, you're most likely not going to get a response and I'm probably going to disconnect. <br><br>
 ⸸ I never interact first unless I'm in a pretty good mood, I also have trouble both starting and maintaining conversations. <br><br>
 ⸸ I don't like participating in roleplays, always ask beforehand and don't ever expect me to take it seriously. <br><br>
 ⸸ Friend requests are off. I'm not friending you just because we share a fandom or we spoke once. I literally have three people on my friends list and I'm pretty content about it. If we've had a couple of decent conversations & we get along, you may ask to friend me or I might even ask to friend you! <br><br>
