@@ -17,7 +17,8 @@
 ⸸ I absolutely adore 𝐓𝐡𝐞 𝐂𝐫𝐚𝐧𝐞 𝐖𝐢𝐯𝐞𝐬 & 𝐋𝐞𝐞 𝐄𝐦𝐢, but I also love Yaelokre, Rabbitology, Cosmo Sheldrake, Paris Paloma, Florence + The Machine... 𝘗𝘏𝘔+𝘚𝘱𝘪𝘥𝘦𝘳𝘷𝘦𝘳𝘴𝘦 𝘰𝘴𝘵, 𝘞𝘪𝘥𝘰𝘸'𝘴 𝘉𝘢𝘺 𝘰𝘴𝘵, 𝘋𝘙/𝘙𝘞/𝘌𝘯𝘥𝘢𝘤𝘰𝘱𝘪𝘢 𝘰𝘴𝘵.. I'm always up for recommendations. <br><br>
 ⸸ For the not fun stuff now.. I struggle a lot with my mental health, and thus my energy can fluctuate frequently. I can come off as apathetic or indifferent, but just because I'm emotionally numb a good chunk of the time but it doesn't mean that I don't care. I know who I care for and what I'm passionate about, unfortunately if I get overly excited, joyous, or angry my body tends to overreact (I get severely nauseous).<br><br>
 ⸸ I'm POLITE, not friendly. I'll always try to hold a level of courteously towards you as long as you respect me, and I've had people describe me as too patient for my own good. However, just because I'm polite doesn't mean I'm friendly. I'll never go out of my way to be mean for no reason to others, but I can come across as blunt or disinterested when my social battery is depleted (which is often). I promise that I don't bite, but I'm not the friendliest person you'll meet. <br><br>
-⸸
+⸸ It can take me quite a long time for me to consider someone a friend, it takes consistent interaction and respect over the course of a few months before I begin to consider you a true friend, until then I may not be vulnerable at all. <br><br>
+
   
   </details>
 
