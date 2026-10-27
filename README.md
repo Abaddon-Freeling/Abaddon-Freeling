@@ -28,7 +28,20 @@
 <details>
   <summary> <a><img width="6%" src="https://github.com/user-attachments/assets/e126edd9-240f-464a-a8c4-577a0aecb47c" alt="DNI Click Here" /></a>
 </summary>
+⸸ Not a section I enjoy, my "Do Not Interact" isn't really for me, it's for YOU. These are my boundaries, if you intentionally cross over them, or bring up these topics in front of me in a supporting manner, I will lose my ability to be polite. Breaking my DNI gives me full access to point and laugh at you in my book, so it's best to just steer clear of interacting in the first place.<br><br>
 
+⸸ Homophobic, Transphobic, Racist, Ableist. Yes, this includes hating people with NPD or BPD, or demonizing psychotic disorders. This includes hating those with unconventional pronouns or being exclusionist to intersex or nonbinary people. Yes, you're homophobic if you punch down on your own community. For fuck's sake you're racist if you believe that "Black people" are inherently stronger, or you think Asians are more feminine. There's so many more examples I didn't list, just be NORMAL. <br><br>
+⸸ RADQUEERS. I'm not elaborating further, if you self identify as a RADQUEER, MAP, ZOO, NECRO, etc... Leave me alone. <br><br>
+⸸ Proship/Darkship. I'm educated on what the terms mean, you don't need to come up to me and explain why you're the exception to the label. I'm not going out of my way to harass you or interact with the content you produce, I expect the same level of courtesy for me. <br><br>
+⸸ Overly dark, edgy, or mean humor. I only allow this sort of humor with my closer friends, light teasing is alright. But if I see you justifying your behavior with the excuse of "I'm just joking!" or "You fell for the ragebait.", I'm immediately put off from interacting with you on a higher level. <br><br>
+⸸ The use of generative AI. This includes usage of AI chatbots or character AI.
+⸸ Mentions of Suicide or Self-Harm without the appropriate warnings. There doesn't ever need to be warnings on 𝐡𝐞𝐚𝐥𝐞𝐝 scars in drawings or photos, but otherwise put a warning on the content. <br> <br>
+⸸ If you see children as stupid or inferior. You were a child once, and they are a person as well. Just treat children with respect, you don't need to be chums with them or buddy-buddy. <br> <br>
+⸸ Harry Potter fans. It's been well known that JK Rowling is a BIGOT. I don't care if you pirate the media, I don't care if you only read fanfiction, I don't care what your excuse is, you're just as much of a bigot to me. If you're a so-called trans advocate then you should have enough understanding that you constantly pushing her work onto social media is still publicity, and still funds her blatant transphobia+racism. <br><br>
+⸸ Hetalia/Countryball. I don't really enjoy when I see people personify countries that have committed genocide as cutesy or something to be shipped. <br><br>
+⸸ Albert's Playhouse, Bearnuts, and House of Puso. I'm not against vent art, I'm against the fact that there's no proper warnings on this media. If you're posting something to the internet, you must take others into consideration. <br><br>
+⸸ Abaddon shippers, romantic selfshippers, anyone who sexualizes Abaddon. He's in the body of a nine year old and acts like a child. Even if you do these things with his original demon-form/pre-bound Abaddon, I don't care. We met him when he was in the body of a child with the behaviors of a child. Shoo. <br><br>
+⸸ Again, Haunted Hotel fandom, if you treat Nathan like he's never done anything wrong while condemning Katherine to the deepest pit of hell, dni. I love both of the siblings, and they both have flaws, notice how I said the worth 'both'. <br><br>
   
   </details>
 
