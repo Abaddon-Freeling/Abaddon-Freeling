@@ -42,6 +42,7 @@
 ⸸ Albert's Playhouse, Bearnuts, and House of Puso. I'm not against vent art, I'm against the fact that there's no proper warnings on this media. If you're posting something to the internet, you must take others into consideration. <br><br>
 ⸸ Abaddon shippers, romantic selfshippers, anyone who sexualizes Abaddon. He's in the body of a nine year old and acts like a child. Even if you do these things with his original demon-form/pre-bound Abaddon, I don't care. We met him when he was in the body of a child with the behaviors of a child. Shoo. <br><br>
 ⸸ Again, Haunted Hotel fandom, if you treat Nathan like he's never done anything wrong while condemning Katherine to the deepest pit of hell, dni. I love both of the siblings, and they both have flaws, notice how I said the worth 'both'. <br><br>
+⸸ Less of a DNI, but I DO block spam followers. I prefer my followers to be oomfs or people who potentially want to BE oomfs with me, not just people clicking a button on my github without actually knowing or having ever interacted with me. 
   
   </details>
 
