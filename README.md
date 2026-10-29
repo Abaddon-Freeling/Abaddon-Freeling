@@ -73,7 +73,8 @@
 
 
 
-Textreader version will be available soon!!!
+ Dropdowns are finnicky, you gotta click the little arrow or it'll just pull up the image. <br><br>
+ Textreader version will be available soon!!!
 
 
 
