@@ -73,12 +73,10 @@
 
 
 
- Dropdowns are finnicky, you gotta click the little arrow or it'll just pull up the image. <br><br>
+<img src="https://github.com/user-attachments/assets/24e99013-6759-4f94-a8dd-9664ce66e6e1" alt="Abby with stupid monkey leash backpack" width="35%" align="right" style="margin-left: 15;"> 
+<br><br><br><br> <br> <br>
+Dropdowns are finnicky, you gotta click the little arrow or it'll just pull up the image. <br><br>
  Textreader version will be available soon!!!
-
-
-
-
 
 
 
