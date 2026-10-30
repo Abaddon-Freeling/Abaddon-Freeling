@@ -18,6 +18,7 @@
 ⸸ For the not fun stuff now.. I struggle a lot with my mental health, and thus my energy can fluctuate frequently. I can come off as apathetic or indifferent, but just because I'm emotionally numb a good chunk of the time doesn't mean that I don't care. I know who I care for and what I'm passionate about, unfortunately if I get overly excited, joyous, or angry my body tends to overreact (I get severely nauseous).<br><br>
 ⸸ I'm POLITE, not friendly. I'll always try to hold a level of courteously towards you as long as you respect me, and I've had people describe me as too patient for my own good. However, just because I'm polite doesn't mean I'm friendly. I'll never go out of my way to be mean for no reason to others, but I can come across as blunt or disinterested when my social battery is depleted (which is often). I promise that I don't bite, but I'm not the friendliest person you'll meet. <br><br>
 ⸸ It can take me quite a long time for me to consider someone a friend, it takes consistent interaction and respect over the course of a few months before I begin to consider you an actual friend instead of an acquaintance, until then I may not be vulnerable at all. If you stick around for long enough and can push through my avoidant tendencies I'll become comfortable reaching out on my own, and for those that I come to trust I'll stay by your side for years. <br><br>
+⸸ All of the art you see here and on my other accounts are made by me, I dabble a bit in writing as well whenever I don't feel like doodling. <br><br>
 
   
   </details>
