@@ -79,9 +79,9 @@
 Dropdowns are finnicky, you gotta click the little arrow or it'll just pull up the image. <br><br>
  Textreader version will be available soon!!!
 
- <br>
+ <br> <br> <br> <br> <br> <br> <br> <br>
 
-
+"Official" Abaddon of that one Ponytown game ➺ [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@THE-TEMPIST](https://github.com/THE-TEMPIST) [@piddlesjet](https://github.com/piddlesjet)
 
 
 
